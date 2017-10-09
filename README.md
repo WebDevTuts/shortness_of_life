@@ -8,3 +8,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - We are not given a short life but we make it short, and we are not ill-supplied but wasteful of it. Just as when ample and princely wealth falls to a bad owner it is squandered in a moment, but wealth however modest, if entrusted to a good custodian, increases with use, so our lifetime extends amply if you manage it properly.
 
 - Life is long if you know how to use it.
+
+- You will find no one willing to share out his money; but to how many does each of us divide up his life! People are frugal in guarding their personal property; but as soon as it comes to squandering time they are most wasteful of the one thing in which it is right to be stingy.

@@ -10,3 +10,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - Life is long if you know how to use it.
 
 - You will find no one willing to share out his money; but to how many does each of us divide up his life! People are frugal in guarding their personal property; but as soon as it comes to squandering time they are most wasteful of the one thing in which it is right to be stingy.
+
+- You are living as if destined to live for ever; your own frailty never occurs to you; you don’t notice how much time has already passed, but squander it as though you had a full and overflowing supply – though all the while that very day which you are devoting to somebody or something may be your last.

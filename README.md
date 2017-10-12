@@ -16,3 +16,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - You will hear many people saying: ‘When I am fifty I shall retire into leisure; when I am sixty I shall give up public duties.’ And what guarantee do you have of a longer life? Who will allow your course to proceed as you arrange it? Aren’t you ashamed to keep for yourself just the remnants of your life, and to devote to wisdom only that time which cannot be spent on any business? How late it is to begin really to live just when life must end! How stupid to forget our mortality, and put off sensible plans to our fiftieth and sixtieth years, aiming to begin life from a point at which few have arrived!
 
 - No activity can be successfully pursued by an individual who is preoccupied.
+
+- Living is the least important activity of the preoccupied man; yet there is nothing which is harder to learn.

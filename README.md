@@ -24,3 +24,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - Everyone hustles his life along, and is troubled by a longing for the future and weariness of the present. But the man who spends all his time on his own needs, who organizes every day as though it were his last, neither longs for nor fears the next day.
 
 - You must not think a man has lived long because he has white hair and wrinkles: he has not lived long, just existed long.
+
+- Each of us could have the tally of his future years set before him, as we can of our past years, how alarmed would be those who saw only a few years ahead, and how carefully would they use them!

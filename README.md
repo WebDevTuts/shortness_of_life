@@ -18,3 +18,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - No activity can be successfully pursued by an individual who is preoccupied.
 
 - Living is the least important activity of the preoccupied man; yet there is nothing which is harder to learn.
+
+- For being an extremely thrifty guardian of his time he never found anything for which it was worth exchanging.

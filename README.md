@@ -20,3 +20,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - Living is the least important activity of the preoccupied man; yet there is nothing which is harder to learn.
 
 - For being an extremely thrifty guardian of his time he never found anything for which it was worth exchanging.
+
+- Everyone hustles his life along, and is troubled by a longing for the future and weariness of the present. But the man who spends all his time on his own needs, who organizes every day as though it were his last, neither longs for nor fears the next day.

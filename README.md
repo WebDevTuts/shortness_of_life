@@ -26,3 +26,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - You must not think a man has lived long because he has white hair and wrinkles: he has not lived long, just existed long.
 
 - Each of us could have the tally of his future years set before him, as we can of our past years, how alarmed would be those who saw only a few years ahead, and how carefully would they use them!
+
+- Life will follow the path it began to take, and will neither reverse nor check its course. It will cause no commotion to remind you of its swiftness, but glide on quietly. It will not lengthen itself for a king’s command or a people’s favour. As it started out on its first day, so it will run on, nowhere pausing or turning aside. What will be the outcome? You have been preoccupied while life hastens on. Meanwhile death will arrive, and you have no choice in making yourself available for that.

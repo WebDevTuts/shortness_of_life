@@ -32,3 +32,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - But putting things off is the biggest waste of life: it snatches away each day as it comes, and denies us the present by promising the future.
 
 - The whole future lies in uncertainty: live immediately.
+
+- Life is divided into three periods, past, present and future. Of these, the present is short, the future is doubtful, the past is certain.

@@ -34,3 +34,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - The whole future lies in uncertainty: live immediately.
 
 - Life is divided into three periods, past, present and future. Of these, the present is short, the future is doubtful, the past is certain.
+
+- Some men are preoccupied even in their leisure: in their country house, on their couch, in the midst of solitude, even when quite alone, they are their own worst company. You could not call theirs a life of leisure, but an idle preoccupation.

@@ -36,3 +36,6 @@ We all fear death, but life is long if you know how to use it. Putting things of
 - Life is divided into three periods, past, present and future. Of these, the present is short, the future is doubtful, the past is certain.
 
 - Some men are preoccupied even in their leisure: in their country house, on their couch, in the midst of solitude, even when quite alone, they are their own worst company. You could not call theirs a life of leisure, but an idle preoccupation.
+
+- Again, do you call those men leisured who spend many hours at the barber’s simply to cut whatever grew overnight, to have a serious debate about every separate hair, to tidy up disarranged locks or to train thinning ones from the sides to lie over the forehead.
+Notes: 1) Ha. How interesting that they tried to hide baldness back then too.

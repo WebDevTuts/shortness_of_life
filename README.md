@@ -39,3 +39,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 
 - Again, do you call those men leisured who spend many hours at the barber’s simply to cut whatever grew overnight, to have a serious debate about every separate hair, to tidy up disarranged locks or to train thinning ones from the sides to lie over the forehead.
 Notes: 1) Ha. How interesting that they tried to hide baldness back then too.
+
+- On the value of reading and writing philosophy: This is the only way to prolong mortality – even to convert it to immortality. Honours, monuments, whatever the ambitious have ordered by decrees or raised in public buildings are soon destroyed: there is nothing that the passage of time does not demolish and remove. But it cannot damage the works which philosophy has consecrated: no age will wipe them out, no age diminish them. The next and every following age will only increase the veneration for them, since envy operates on what is at hand, but we can more openly admire things from a distance. So the life of the philosopher extends widely: he is not confined by the same boundary as are others.

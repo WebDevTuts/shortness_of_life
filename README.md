@@ -42,3 +42,5 @@ We all fear death, but life is long if you know how to use it. Putting things of
 Notes: 1) Ha. How interesting that they tried to hide baldness back then too.
 
 - On the value of reading and writing philosophy: This is the only way to prolong mortality – even to convert it to immortality. Honours, monuments, whatever the ambitious have ordered by decrees or raised in public buildings are soon destroyed: there is nothing that the passage of time does not demolish and remove. But it cannot damage the works which philosophy has consecrated: no age will wipe them out, no age diminish them. The next and every following age will only increase the veneration for them, since envy operates on what is at hand, but we can more openly admire things from a distance. So the life of the philosopher extends widely: he is not confined by the same boundary as are others.
+
+- Life is very short and anxious for those who forget the past, neglect the present, and fear the future.
